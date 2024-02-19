@@ -6,9 +6,9 @@ Estudié Ingeniería de Software 👨🏻‍💻 y en el camino el mundo web me 
 
 Un eterno estudiante de Python 🐍 y la ciencia de datos. 🤖
 
-CV: 
+CV: [Descarga aquí] ()
 
-😄 Twitter ¿Nos seguimos? @rubyrubyy
+😄 Twitter ¿Nos seguimos? [@rubyrubyy] (https://twitter.com/rubyrubyy)
 
 ⚡ Fun fact: I´m crazy for Funkos
 
