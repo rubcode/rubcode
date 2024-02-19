@@ -8,7 +8,7 @@ Un eterno estudiante de Python 🐍 y la ciencia de datos. 🤖
 
 CV: [Descarga aquí] ()
 
-😄 Twitter ¿Nos seguimos? [@rubyrubyy] (https://twitter.com/rubyrubyy)
+😄 Twitter ¿Nos seguimos? [@rubyrubyy](https://twitter.com/rubyrubyy)
 
 ⚡ Fun fact: I´m crazy for Funkos
 
