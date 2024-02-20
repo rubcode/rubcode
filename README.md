@@ -1,6 +1,6 @@
 ### Hola ¿Cómo estás? 👋👋
 
-🦸🏻‍♀️🦸🏻‍♀ Soy Rub Rivero aquí ✨ https://www.rubrivero.com
+🦸🏻‍♂️🦸🏻‍♂️ Soy Rub Rivero aquí ✨ https://www.rubrivero.com
 
 Estudié Ingeniería de Software 👨🏻‍💻 y en el camino el mundo web me atrapó💻.
 
