@@ -14,6 +14,6 @@ CV: [Descarga aquí](https://drive.google.com/file/d/1CC-2T8_kBJMsLbVZ-wuRc9U2bR
 
 🎞️ Movies lover
 
--:email: rorr930223@gmail.com 📫
+email: rorr930223@gmail.com 📫
 
 
